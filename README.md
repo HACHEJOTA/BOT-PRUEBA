@@ -17,8 +17,8 @@
 <a href="http://wa.me/51918299647" target="blank"><img src="https://img.shields.io/badge/SinNombre_COLAB.4-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 ### `—◉ 🔥GRUPO OFICIAL`
-https://chat.whatsapp.com/B77dibIlJh618eZe2wutyU
-PARA QUE LOS UNA A LOS GRUPOS
+👉https://chat.whatsapp.com/B77dibIlJh618eZe2wutyU👈
+
 
 ---------
 > GRUPO OFICIAL DEL BOT PARA LA DIVERSIÓN :)
